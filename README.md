@@ -39,7 +39,7 @@ I am a passionate **Junior Reporting Analyst** with a strong foundation in **dat
 
 - **📧 Email:** [mayur.kotu14@gmail.com](mailto:mayur.kotu14@gmail.com)
 - **📱 Phone:** +91 8369226781
-- **🌐 LinkedIn:** [Connect with me](#)
+- **🌐 LinkedIn:** [Connect with me](#www.linkedin.com/in/saimayurkotu)
 
 ---
 
